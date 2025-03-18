@@ -1,2 +1,11 @@
-# ACTIVITY-4-and-5
-LISTING APP - PRODUCTS (WITH RANGE UP TO 5 ITEMS)
+# ACTIVITY 4 & 5 MEMBERS:
+Gemao, Mariannie 
+Alonzo, Regina 
+Balajadia, Shona 
+Fajardo, Ira 
+Golis, Jovelyn 
+Gonzalo, Faith 
+Jariol, Mesail
+Pelueta, Aubrey May 
+Rodel, Ezzabelle 
+Tupaz, Carmela 
