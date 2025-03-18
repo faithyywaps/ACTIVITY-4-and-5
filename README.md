@@ -1,4 +1,4 @@
-# ACTIVITY 4 & 5 MEMBERS:
+ACTIVITY 4 & 5 MEMBERS:
 Gemao, Mariannie 
 Alonzo, Regina 
 Balajadia, Shona 
